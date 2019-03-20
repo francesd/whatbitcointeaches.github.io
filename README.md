@@ -1,4 +1,4 @@
-## 
+What's it all about? 
 
 My name is Dominique. I would like to share a great tool that helps us gain more responsibility in our lives.
 
